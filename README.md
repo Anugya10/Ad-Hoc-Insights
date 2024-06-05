@@ -1,3 +1,5 @@
+[Link to Presentation](https://youtu.be/n7XnoKK4DHI?si=48q-Gg3t-t45hqJw)
+
 # Ad-Hoc-Insights
 
 Domain : Consumer Goods
